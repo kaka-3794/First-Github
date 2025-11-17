@@ -1,1 +1,2 @@
 # First-Github
+HAI KAK INI TUGAS NYA YA
